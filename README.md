@@ -12,6 +12,7 @@
 
 ---
 
+
 [Whatsapp-大灣區無人商店加盟計劃](https://chat.whatsapp.com/JRYMorMFOgN8d2sU0I2mz3)
 
 
@@ -21,6 +22,15 @@
 [Youtube Channel](https://youtu.be/0nk9V7JfBSA)
 
 
+---
+
+#### 相關新聞:
+
+- [新鸿基南沙庆盛枢纽综合体规划曝光：力争2023年首期开幕](http://news.winshang.com/html/065/6950.html  )
+
+
+
+---
 
 ![交通方便](https://github.com/YZJy18/YZG20190621y18fecd/blob/master/交通方便.jpg  "交通方便")
 
